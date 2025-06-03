@@ -19,3 +19,12 @@ emissions, enhance the quality of the environment as well as investing in other 
 Beyond their role in combating climate change, EVs represent a broader transition: as a positive 
 shift toward energy liberation globally, economic balance, and environmental sustainability. 
 
+![Image](https://github.com/user-attachments/assets/690c049e-4c50-4969-af25-d94bf6b2e638)
+
+![Image](https://github.com/user-attachments/assets/640c2b7a-5fca-47de-8df3-bba48d9d7840)
+
+![Image](https://github.com/user-attachments/assets/a2189b94-63a1-4bbc-9e26-f299e6176578)
+
+![Image](https://github.com/user-attachments/assets/08cb41f0-9939-4e7b-bdf8-7341a929a019)
+
+![Image](https://github.com/user-attachments/assets/ae921dd3-29ca-4249-98e1-6c04ba82b103)
